@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on our relationship
 - 📫 How to reach me: columc23 on insta
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i play ball like tracy mcgrady
+- ⚡ Fun fact: none of these fun facts are fun
 
 <!---
 col-23/col-23 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
